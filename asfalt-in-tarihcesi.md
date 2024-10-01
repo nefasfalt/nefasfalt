@@ -36,3 +36,17 @@ yüzyıla gelindiğinde asfalt, yol yapımının yanı sıra havaalanı pistleri
 <p>
 Gelecekte asfalt, çevreye duyarlı teknolojilerin gelişmesiyle birlikte farklı bir boyut kazanacaktır. Geri dönüştürülebilir asfalt, enerji tasarruflu üretim yöntemleri ve dayanıklılığı artıran inovatif çözümler, modern inşaat projelerinin temel unsurları haline gelecektir. Karbon salınımını azaltan "yeşil asfalt" teknolojileri ise, gelecek dönemlerde yol yapımında devrim niteliğinde yenilikler getirecektir.
 </p>
+
+<img src="https://www.nefasfalt.com/img/other/aa-10-02-2024-02-39-27.webp" alt="Modern Dönemde Asfalt Teknolojisi">
+<h2>
+Nefasfalt ile Geleceğin Yolları
+</h2>
+<p>
+Asfaltın binlerce yıllık tarihi boyunca, yapı malzemesi olarak geçirdiği evrim, modern dünya için vazgeçilmez bir hale gelmesini sağladı. Gelişen teknoloji ile daha dayanıklı, çevre dostu ve sürdürülebilir asfalt çözümleri hayatımıza giriyor. Bu noktada, yol altyapısında inovasyonu ve kaliteyi ön planda tutan firmalar büyük önem kazanıyor.
+</p>
+<p>
+Nefasfalt olarak, biz de asfalt teknolojisinin sunduğu yenilikleri yakından takip ediyor ve en modern çözümleri projelerimize entegre ediyoruz. Geri dönüştürülebilir asfalt teknolojilerini kullanarak çevreye duyarlı projeler yürütüyor, enerji verimliliği sağlayan üretim süreçleriyle daha dayanıklı yollar inşa ediyoruz.
+</p>
+<p>
+Siz de altyapı projelerinizde güvenilir, yenilikçi ve sürdürülebilir çözümler arıyorsanız, Nefasfalt’ın uzmanlığına güvenebilirsiniz. Daha fazla bilgi için <a href="https://www.nefasfalt.com/bize-ulasin">buraya tıklayın.</a>
+</p>
